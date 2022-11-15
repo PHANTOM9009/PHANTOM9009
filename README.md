@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PHANTOM9009
+- 👋 Hi, I’m Anchit Rana.
 - Collaborate with me on https://github.com/PHANTOM9009/GREED
 
 <!---
